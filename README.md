@@ -1,1 +1,1 @@
-# bits-india-public
+BITS India - Business & IT Solutions
